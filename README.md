@@ -1,0 +1,104 @@
+Relationship Bylaws of N & A
+
+Preamble
+We, N and A, enter this relationship with mutual love, trust, and the intention to nurture a strong, respectful, and supportive partnership. As a long-distance couple, we recognize the importance of clear communication, consistency, and shared effort. These bylaws serve as our agreed foundation for how we care for, respect, and grow with each other.
+
+⸻
+
+Article I — Communication
+
+Section 1.1 – Honesty
+Each partner commits to speaking truthfully and kindly, even when the subject is difficult.
+
+Section 1.2 – Emotional Check-Ins
+We will make time for regular emotional check-ins (at least weekly or as needed) to maintain closeness and understanding.
+
+Section 1.3 – Conflict Handling
+Disagreements will be addressed with calm and respect. Yelling, stonewalling, and personal attacks are not acceptable. We may take a short pause to cool down, but we commit to returning to the conversation when ready.
+
+Section 1.4 – Courtesy in Silence
+If either partner is tired, overwhelmed, or unavailable to talk at any time of day, they will gently inform the other, even briefly. This avoids misunderstandings and reassures the other that there is no anger or avoidance involved.
+
+⸻
+
+Article II — Time Together
+
+Section 2.1 – Intentional Connection
+We will make time to connect meaningfully (calls, video chats, shared online activities, etc.) at least [insert number] times per week, as agreed upon.
+
+Section 2.2 – Respect for Personal Time
+We support and respect each other’s need for alone time, personal space, and external commitments.
+
+Section 2.3 – In-Person Visits
+As a long-distance couple, we commit to seeing each other in person at least once every 1–2 months, when circumstances allow. These visits will be planned in advance and treated as valuable time.
+
+⸻
+
+Article III — Boundaries and Respect
+
+Section 3.1 – Privacy
+Each partner’s digital and physical privacy will be respected. Phones, personal items, and messages are not to be accessed without permission.
+
+Section 3.2 – Social Media
+We will consult each other on what relationship-related content is appropriate to post publicly.
+
+Section 3.3 – Loyalty and Fidelity
+We commit to a monogamous relationship, and both emotional and physical infidelity are grounds for serious discussion. Clear expectations of what constitutes cheating are agreed upon by both parties.
+
+⸻
+
+Article IV — Conflict Resolution
+
+Section 4.1 – Apologies
+Apologies must be sincere and followed by real effort to improve. Responsibility is acknowledged without deflecting or blame-shifting.
+
+Section 4.2 – No Scorekeeping
+Past conflicts that have been resolved will not be weaponized in future disagreements.
+
+⸻
+
+Article V — Future Planning
+
+Section 5.1 – Shared Goals
+We will discuss our personal and shared life goals openly and support one another in pursuing them.
+
+Section 5.2 – Major Decisions
+Significant decisions—such as relocation, finances, or family planning—will be made together with mutual understanding and agreement.
+
+⸻
+
+Article VI — Affection and Intimacy
+
+Section 6.1 – Physical Affection
+We commit to maintaining physical closeness, expressed through gestures of affection that both partners are comfortable with.
+
+Section 6.2 – Sexual Intimacy
+We will communicate openly about needs, boundaries, and desires related to intimacy, always with respect and care.
+
+⸻
+
+Article VII — Loyalty and Support
+
+Section 7.1 – Partnership Mentality
+We act as a team. Public or private, we support one another and uplift rather than criticize.
+
+Section 7.2 – Emotional Support
+In times of stress or crisis, we will offer comfort, presence, and encouragement. We face challenges together, not apart.
+
+⸻
+
+Article VIII — Review and Amendments
+
+Section 8.1 – Review
+These bylaws will be reviewed together at least once a year or whenever a major change in the relationship occurs.
+
+Section 8.2 – Amendment Process
+Any revisions to these bylaws must be agreed upon by both N and A and reflected in a new ratified version.
+
+⸻
+
+Ratified this day: July 22, 2025
+Signed:
+
+N: ___________________________
+A: ___________________________
